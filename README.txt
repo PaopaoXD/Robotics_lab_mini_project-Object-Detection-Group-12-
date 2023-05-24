@@ -1,0 +1,2 @@
+If the youtube video provided in google classroom got taken down due to copyright reasons please refer to this youtube link instead: https://youtu.be/bXDk1_mkIfU
+For the file of the dataset please refer to this google drive link: https://drive.google.com/file/d/1G8FfpBMS3XNitlYuCuO_001YWaCckKy1/view?usp=sharing
